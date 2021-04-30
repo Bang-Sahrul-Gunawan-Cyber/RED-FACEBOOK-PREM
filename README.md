@@ -1,4 +1,3 @@
-# ✅ RED FACEBOOK PREMIUM ✅
 <h4 align="center">
 <a href="#"><img title="Author BY : Sahrul Gunawan Cyber" src="https://img.shields.io/badge/AUTHOR%20BY-SAHRUL~%20GUNAWAN-yellow?colorA=%23ff0000&colorB=%23FFFF00&style=for-the-badge"></a> 
 <h4 align="center">
